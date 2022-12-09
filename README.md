@@ -6,4 +6,4 @@
 - No Talking 
 - Available on Youtube
 
-[Video Link](https://youtu.be/hYSx3D-1OgA)
+[Video Link](https://youtu.be/ZhycNGhu31s)
